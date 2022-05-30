@@ -1,1 +1,0 @@
-# HolovninLabWork9
